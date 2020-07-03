@@ -1,2 +1,0 @@
-- This is a manually created page for Stoicism.
-- 
